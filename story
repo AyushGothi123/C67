@@ -1,1 +1,2 @@
 T here was a village on the outskirts of a forest. A shepherd boy used to take his herd of sheep across the fields to the lawns near the forest.
+One day he felt very boring. He wanted to have fun. So he cried aloud "Wolf, Wolf. The wolf is carrying away a lamb". Farmers working in the fields came running and asked, "Where is the wolf?". The boy laughed and replied "It was just a fun. Now get going all of you".
